@@ -39,7 +39,7 @@ Many schools and workplaces block gaming websites, making it impossible to play.
 ---
 ## 🔥 How to Play [Cookie Clicker](https://cookieclicker.me) Unblocked
 
-Want to start playing? Just follow these easy steps:
+### Want to start playing? Just follow these easy steps:
 
 1. Visit the official unblocked site: Click [here](https://cookieclicker.ee/) to play Cookie Clicker Unblocked.
 
